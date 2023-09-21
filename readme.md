@@ -1,0 +1,1 @@
+Content about curso.dev
